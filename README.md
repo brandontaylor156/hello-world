@@ -9,3 +9,13 @@ Rock that body cmon cmon rock that body
 
 I'm drippin water nigga aquafina
 Fuck yalllladslfkajsdlfkj
+I aint got time for these fuck niggags;dlkfsakj
+if you aint gang i aint fuck witcha
+im straight out the mud 
+s
+d
+f
+df
+dfs
+d
+f
