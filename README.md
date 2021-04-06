@@ -6,3 +6,6 @@ Well, it's Tuesday, April 26th at 12:36AM.
 
 Here's a revision. 
 White belt ass niggaaaaaaaa
+Yup I'm really out here now
+Good job ass nigggaaaa
+Hotttt boy hot boy hot boy 
